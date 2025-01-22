@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @yahya-flox
 - 👀 I’m interested in learning various programming languages.
-- 🌱 I’m currently learning diploma in computer information systems.
 - 💞️ I’m looking to collaborate on any proposal that comes my way.
 - 📫 How to reach me - yahya.m.abdullahi000@gmail.com
 - 😄 Pronouns: Am MALE as Allah intended.
